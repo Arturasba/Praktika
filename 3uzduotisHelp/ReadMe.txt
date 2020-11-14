@@ -1,0 +1,1 @@
+Cia kelsim visus failus susijusius su treciaja praktikos uzduotimi
